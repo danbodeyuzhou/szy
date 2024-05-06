@@ -35,4 +35,4 @@
 全世界安静 把追光点亮  
 你高举着徽章 宣告着未来登场  
 
-歌曲[flac(21MB)](dengchang-flac.flac) [mp3(8MB)](dengchang-mp3.mp3)
+歌曲[flac(21MB)](dengchang-flac.flac)  [mp3(8MB)](dengchang-mp3.mp3)
